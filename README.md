@@ -10,4 +10,4 @@
 
 这些平台汇聚最新电影在线观看资源，提供丰富的日韩精品福利电影和福利视频专区。内容更新迅速，分类细致，每个视频页面包含详细介绍和高清播放，确保流畅观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi8 ）</span>
